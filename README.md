@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+I'm Jay Lee from republic of Korea(south Korea).
+
+- 🌱 I’m currently learning ... bachelors of comtuper science. 
+  I'm looking forward to learn more stuffs about many fields!
